@@ -1,1 +1,1 @@
-# Dise-o-de-Parlantes
+# Parlantes
